@@ -1,6 +1,5 @@
 muslim, fullstack dev, and just another person
 
-check out [spaceness](https://spaceness.team)
 
 Discord: [`tg.t`](https://discord.com/users/1053443057451794585)
 
