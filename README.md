@@ -1,4 +1,6 @@
-muslim, fullstack dev, and just another person
+muslim, fullstack dev
+
+what else is there to say
 
 developer @ [aetherra](https://github.com/aetherra)
 
