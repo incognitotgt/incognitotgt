@@ -2,7 +2,6 @@ muslim, fullstack dev
 
 what else is there to say
 
-developer @ [aetherra](https://github.com/aetherra)
 
 discord: [`tg.t`](https://discord.com/users/1053443057451794585)
 
