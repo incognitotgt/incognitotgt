@@ -3,7 +3,7 @@ muslim, fullstack dev
 what else is there to say
 
 
-discord: [`tg.t`](https://discord.com/users/1053443057451794585)
+discord: [`35tx`](https://discord.com/users/1091735539025203220)
 
 https://incognitotgt.me
 
