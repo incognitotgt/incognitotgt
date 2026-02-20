@@ -3,7 +3,7 @@ muslim, fullstack dev
 what else is there to say
 
 
-discord: [`35tx`](https://discord.com/users/1091735539025203220)
+discord: [`0mhx`](https://discord.com/users/1091735539025203220)
 
 https://incognitotgt.me
 
